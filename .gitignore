@@ -1,1 +1,3 @@
 nuovofile.txt
+*.log
+log/
