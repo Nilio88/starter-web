@@ -16,6 +16,8 @@ Readymade hell of adaptogen organic heirloom cred pop-up cardigan williamsburg. 
 
 ## How To Contribute
 
+Forkare questa repository e inviare pull requests per la revisione.
+
 ### Copyright
 
 2018 Eminds.
