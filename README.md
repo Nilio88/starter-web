@@ -22,4 +22,4 @@ Forkare questa repository e inviare pull requests per la revisione.
 
 ### Copyright
 
-2018 Eminds.
+2018 Eminds. Tutti i diritti riservati.
