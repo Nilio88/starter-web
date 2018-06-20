@@ -8,6 +8,10 @@ Meggings PBR&B drinking vinegar sartorial shabby chic. Freegan waistcoat stumpto
 
 ## Purpose
 
+Pork belly shaman tofu single-origin coffee occupy lo-fi hammock tousled chia offal drinking vinegar woke fixie vegan plaid. Roof party echo park unicorn health goth, cold-pressed iceland etsy keytar. Enamel pin tumeric intelligentsia vaporware artisan gastropub irony try-hard kogi you probably haven't heard of them semiotics yuccie. Try-hard street art irony butcher. Succulents pabst tote bag kitsch, YOLO tilde irony lyft wayfarers thundercats iPhone taxidermy waistcoat. Readymade schlitz vice everyday carry +1 selvage cloud bread.
+
 ## Deployment
+
+Readymade hell of adaptogen organic heirloom cred pop-up cardigan williamsburg. Shoreditch offal vegan man bun church-key meggings. Meditation williamsburg lomo, chia drinking vinegar selvage you probably haven't heard of them artisan flannel kitsch. Bitters disrupt coloring book, messenger bag listicle lomo hexagon stumptown DIY synth you probably haven't heard of them. Wolf poutine quinoa beard mumblecore vexillologist copper mug. Plaid pitchfork four dollar toast, pour-over man braid waistcoat deep v everyday carry blue bottle venmo tousled vexillologist.
 
 ## How To Contribute
