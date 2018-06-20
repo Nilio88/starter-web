@@ -15,3 +15,7 @@ Pork belly shaman tofu single-origin coffee occupy lo-fi hammock tousled chia of
 Readymade hell of adaptogen organic heirloom cred pop-up cardigan williamsburg. Shoreditch offal vegan man bun church-key meggings. Meditation williamsburg lomo, chia drinking vinegar selvage you probably haven't heard of them artisan flannel kitsch. Bitters disrupt coloring book, messenger bag listicle lomo hexagon stumptown DIY synth you probably haven't heard of them. Wolf poutine quinoa beard mumblecore vexillologist copper mug. Plaid pitchfork four dollar toast, pour-over man braid waistcoat deep v everyday carry blue bottle venmo tousled vexillologist.
 
 ## How To Contribute
+
+### Copyright
+
+2018 Eminds
